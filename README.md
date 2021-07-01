@@ -1,4 +1,4 @@
-### 💥 Lizzie Matusov 💥
+### About me
 
 
 
